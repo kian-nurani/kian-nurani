@@ -4,7 +4,7 @@
 - 👯 I’m looking to collaborate on my website
 - 🤔 I’m looking for help with learning more about coding
 - 💬 Ask me about coding
-- 📫 How to reach me: uh talk to me i guess dude
+- 📫 How to reach me: dont
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: you've never seen me and batman in the same room
 
